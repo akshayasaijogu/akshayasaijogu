@@ -1,4 +1,4 @@
-##Hi I am Akshaya,
+**Hi I am Akshaya,**
 
 
 Driven by a passion for leveraging technology to solve complex challenges, I am currently immersed 
